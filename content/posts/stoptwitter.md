@@ -1,0 +1,21 @@
+---
+author: Phil Whitehouse
+title: Can we stop talking about Twitter now?
+date: 2009-04-21
+description: Understanding the social web
+---
+Whenever an emerging product or service hits the mainstream, it’s inevitably followed by a flurry of online and newspaper articles educating the uninitiated. The recent explosion of repetitive articles about how to use Twitter – particularly from a business perspective – is perhaps reflective of not just the novelty value of this ‘new’ service, but also the constraints that are leading to innovative uses of the medium (full disclaimer: [I wrote one using Twitter itself](http://www.twitter.com/tencommandments) back in January 2008).
+
+However, it’s important to note that it is just a medium and actually most of the opportunities and challenges of using this medium effectively are not new. It’s simply the latest step change in the democratisation of the web – Yet Another Online Tool which puts individuals on an equal footing with those who previously had all the power – corporations, governments and religious bodies. These tools, that allow grassroots networks to self organise, and exclude those deemed unworthy or without merit, have been around for a long time. Blogging tools (and RSS) have performed this function admirably for about ten years and more recent tools such as Facebook and Twitter have led the charge into the mainstream.
+
+I’d therefore argue that the challenge isn’t ‘how to use twitter effectively’, it’s ‘how to use the web effectively’. And the answer to this question starts with a basic understanding of the fact that the broadcast models of old simply aren’t working in the way they used to.
+
+Before the mid-90s, large companies could depend on broadcasting their information through a variety of channels – whether through press releases, events, adverts and other communications channels. These relatively subversive channels provided little in the way of discussion or debate and any word of mouth discussion about the quality of a given product or service was usually limited to those within earshot.
+
+Not so anymore. As an individual I have access to global online networks of friends, colleagues and industry experts, all of whom are only too willing to share their views on the world – and listen in return. Given that people naturally gravitate towards those who share their views, it’s fair to say that someone in one of my online networks has either made, or is considering, the same purchase decision that I’m making. I hold a healthy, cynical view about adverts and press releases, which are obviously biased and therefore held in much lower regard than the views of people in my network.
+
+If you’re a large organisation, and you want to engage effectively in these networks, it may first be necessary to undergo sociological and organisational change. The organisations that behave as though they are the ones in control – that simply bestow information on their audience without listening – will fail in this space. The audience has tools to filter out any messages they choose, and messages that aren’t conversational or social will be obvious candidates for the chop.
+
+It follows that those which succeed need to join the conversation at the same level as those they want to engage with. Those companies that are genuinely friendly, personable, helpful, and offer good value are the ones which will succeed – word will get out! The organisational re-structuring I’m referring to will need to support these processes and communication channels. Creating effective feedback loops that can respond quickly and honestly to problems becomes the key to doing good business. Rather than relying on an overstretched marketing department, the key is unlocking the genuine enthusiasm of your people. They have more credibility in this space than anyone who has their own CRM system.
+
+So my advice is: stop worrying about how to ‘monetise twitter’. It’s as much a waste of time as trying to monetise a dinner party. Read the [Cluetrain Manifesto](http://www.cluetrain.org/) to understand how conversation leads to relationships, and relationships leads to transactions. Those who try to use the social web to get straight to the transaction will do more harm than good.
