@@ -5,7 +5,7 @@ date: 2023-02-09
 description: Website update
 ---
 
-![Jamstack illustration](/img/jamstack.png)
+![Jamstack illustration](/img/vonage-learn.jpg)
 
 I've refreshed my [business website](https://pragmatech.sydney/) today, which normally wouldn't be too much cause for celebration as the content itself hasn't changed - but some interesting stuff has gone on under the hood so I thought I'd capture it here.
 
