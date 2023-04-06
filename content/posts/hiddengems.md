@@ -27,7 +27,7 @@ Everyone knows 'All Right Now', but I would wager not many folks could name anot
 
 {{< youtube hpqnCQIPc6w >}}
 
-Oh man, when the guitar kicks in at 2:32 it makes my hair stand on end...just lovely stuff...and it turns out the whole album is just as exquisite. Like a lot of great bands, Free initially made their name as one of the British blues explosion, but heaven knows why they've fallen off the radar since then. Their other later albums are also really good.
+Oh man, when the guitar kicks in at 2:32 it makes my hair stand on end...just lovely stuff...and it turns out the whole album is just as exquisite. Like a lot of great bands, Free initially made their name as one of the British blues explosion, but heaven knows why they've fallen off the radar since then. Their other later cd albums are also really good.
 
 Note to self: must watch Devs for a third time...
 
@@ -39,21 +39,23 @@ I follow a few 'classic rock' groups on Quora, and noticed that Boston's debut a
 
 And if you dig that, you'll find their second album 'Don't Look Back' is almost as good, especially the [title track](https://youtu.be/XmU4Xyl00hY).
 
-### The Stranglers - Rattus Norvegicus
+### Townes Van Zandt - For the Sake of the song
 
-### Alan Parson Project
+![Album cover of For the Sake of the song](/img/townes.jpg)
 
-### Lou Reed - New York
+When I first heard this album, I had to stop everything and just listen. There's a beautiful Southern twang to the man and his music, but I can hear an alternative strain running through it as well. From the opening title track to the closing number, it's a beautiful collection - sometimes haunting, sometimes upbeat, always captivating.
 
-### Chicago
+Hard to say where to start with this one, but maybe give "[I'll be there in the morning](https://www.youtube.com/watch?v=SCVTjmygWuU&ab_channel=FatPossumRecords)" a spin.
 
-### Townes Van Zandt
+### Jim Croce - You Don't Mess Around with Jim
 
+![Album cover of You Don't Mess Around with Jim ](/img/croce.jpg)
 
-### Jim Croce
+Staying in the South, I'm staggered that Jim Croce isn't better known. He created two good albums and then three great ones, before tragically dying in a plane crash at the age of 30 - just as he was reaching his creative peak. His songs are dripping with charm and (often) great humour, laid over the top of some the most catchy and memorable guitar tracks you'll ever hear. A man I would've liked to have had a beer with.
 
+Picking the best of his albums is a fool's errand as his final three, *You Don't Mess Around with Jim*, *Life and Times* and *I Got a Name* are all outstanding. Picking a favourite song is equally futile. So I'll just go with one of the first results on youtube - "[Bad Bad, Leroy Brown](https://www.youtube.com/watch?v=yTrsS8SGwx4&ab_channel=JimCroce)". What a guy, and what a moustache!
 
 ### Rush - Rush
 
-
-### Pretenders
+### Honorable mentions
+Crazy on You, 25 or 6 to 4, Alan Parsons,
