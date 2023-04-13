@@ -27,7 +27,7 @@ Everyone knows 'All Right Now', but I would wager not many folks could name anot
 
 {{< youtube hpqnCQIPc6w >}}
 
-Oh man, when the guitar kicks in at 2:32 it makes my hair stand on end...just lovely stuff...and it turns out the whole album is just as exquisite. Like a lot of great bands, Free initially made their name as one of the British blues explosion, but heaven knows why they've fallen off the radar since then. Their other later cd albums are also really good.
+Oh man, when the guitar kicks in at 2:32 it makes my hair stand on end...just lovely stuff...and it turns out the whole album is just as exquisite. Like a lot of great bands, Free initially made their name as one of the British blues explosion, but heaven knows why they've fallen off the radar since then. Their later albums are also really good.
 
 Note to self: must watch Devs for a third time...
 
@@ -35,7 +35,7 @@ Note to self: must watch Devs for a third time...
 
 ![Album cover of Boston's eponymous album](/img/BostonBoston.jpg)
 
-I follow a few 'classic rock' groups on Quora, and noticed that Boston's debut album was frequently mentioned as one of the best. OK, I thought, let's give it a go. I only really knew them for 'More than a feeling', which to be fair is a certified banger, but I was surprised to find there were even better tracks on the album. Fantastic harmonies, catchy hooks and fun lyrics - what's not to like? Personal favourite from this album would be 'Peace of Mind', which you can [check out on Youtube here](https://www.youtube.com/watch?v=edwk-8KJ1Js&ab_channel=BostonVEVO).
+I follow a few 'classic rock' discussion groups on Quora, and noticed that Boston's debut album was frequently mentioned as one of the best. OK, I thought, let's give it a go. I only really knew them for 'More than a feeling', which to be fair is a certified banger, but I was surprised to find there were even better tracks on the album. Fantastic harmonies, catchy hooks and fun lyrics - what's not to like? Personal favourite from this album would be 'Peace of Mind', which you can [check out on Youtube here](https://www.youtube.com/watch?v=edwk-8KJ1Js&ab_channel=BostonVEVO).
 
 And if you dig that, you'll find their second album 'Don't Look Back' is almost as good, especially the [title track](https://youtu.be/XmU4Xyl00hY).
 
@@ -45,17 +45,48 @@ And if you dig that, you'll find their second album 'Don't Look Back' is almost 
 
 When I first heard this album, I had to stop everything and just listen. There's a beautiful Southern twang to the man and his music, but I can hear an alternative strain running through it as well. From the opening title track to the closing number, it's a beautiful collection - sometimes haunting, sometimes upbeat, always captivating.
 
-Hard to say where to start with this one, but maybe give "[I'll be there in the morning](https://www.youtube.com/watch?v=SCVTjmygWuU&ab_channel=FatPossumRecords)" a spin.
+Hard to say where to start with this one, but maybe give "[I'll be there in the morning](https://www.youtube.com/watch?v=SCVTjmygWuU&ab_channel=FatPossumRecords)" a spin. Very happy to find that - like many artists from this era - he has an extensive back catalogue that I'm happily working through now.
 
 ### Jim Croce - You Don't Mess Around with Jim
 
 ![Album cover of You Don't Mess Around with Jim ](/img/croce.jpg)
 
-Staying in the South, I'm staggered that Jim Croce isn't better known. He created two good albums and then three great ones, before tragically dying in a plane crash at the age of 30 - just as he was reaching his creative peak. His songs are dripping with charm and (often) great humour, laid over the top of some the most catchy and memorable guitar tracks you'll ever hear. A man I would've liked to have had a beer with.
+Staying in the South, I'm staggered that Jim Croce isn't better known. He created two good albums and then three great ones, before tragically dying in a plane crash at the age of 30 - just as he was reaching his peak. His songs are dripping with charm and (often) great humour, laid over the top of some the most catchy and memorable guitar riffs you'll ever hear. A man I would've liked to have had a beer with.
 
 Picking the best of his albums is a fool's errand as his final three, *You Don't Mess Around with Jim*, *Life and Times* and *I Got a Name* are all outstanding. Picking a favourite song is equally futile. So I'll just go with one of the first results on youtube - "[Bad Bad, Leroy Brown](https://www.youtube.com/watch?v=yTrsS8SGwx4&ab_channel=JimCroce)". What a guy, and what a moustache!
 
 ### Rush - Rush
+
+![Album cover of Rush by Rush](/img/rush.jpg)
+
+Rush is admittedly an acquired taste. On the one hand you've got Alex Lifeson's delicious riffs backed up by [arguably the best drummer of all time](https://en.wikipedia.org/wiki/Neil_Peart#Awards_and_honours). On the other hand I can see why Geddy Lee's crazy high vocals and wizardy lyrics can put people off. Still, you can put me firmly in the fandom column, and albums like Moving Pictures and 2112 get heavy rotation in my house.
+
+But little did I realise that their first album would become one of my all time favourites! Coming as it did before Neil Peart even joined the group, I was thrilled to discover that their eponymous debut is filled with wall to wall bangers. Perhaps the most fun you can have on a rock album, period. As with Steely Dan, perhaps it's fair to say that their earlier stuff is slightly less technically accomplished than their later work, but they make up for this with catchy tunes.
+
+### Alice Cooper - Love It To Death (1971)
+
+![Album cover of Love It To Death](/img/cooper.jpg)
+
+I've never been much of a metalhead, and up until recently I had dismissed Alice Cooper as a bit of a gimmick. Songs like 'School's Out' and 'Poison' just don't do it for me. Which is why I was surprised as anyone when someone embedded "[I'm Eighteen](https://www.youtube.com/watch?v=AZ1MdRgU7Hw&ab_channel=AliceCooper-Topic)" in a Quora post and I loved it immediately.
+
+And waddayaknow, the whole album is great too. If you've dismissed Alice Cooper too - and shame on me for doing it in the first place - then you might be surprised too.
+
+### Blind Faith - Blind Faith
+
+![Album cover of Blind Faith](/img/Blind-Faith-US.jpg)
+
+Yes, there's a naughtier version of this album cover, you can seek it out if you wish. But your time is far better spent listening to the album - it's a masterpiece, plain and simple, and the only one produced by this supergroup. Eric Clapton produces a series of brilliant hooks underpinned by some of the best drumming you'll ever hear from Ginger Baker. Not generally a fan of drum solos, but the skills evident on 'Do What You Want' makes time stand still for me. Steve Winwood and Ric Grech don't pull any punches either.
+
+Bonus link: Steve Winwood shared [this great acoustic version of Can't Find My Way Home](https://youtu.be/eoSn2Y-b6wI).
+
+### Peter Green's Fleetwood Mac
+
+### Buckingham Nicks - Buckingham Nicks
+
+### Billy Joel - The Stranger
+
+
+### Elton John - Madman Across The Water
 
 ### Honorable mentions
 Crazy on You, 25 or 6 to 4, Alan Parsons,
