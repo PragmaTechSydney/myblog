@@ -29,6 +29,6 @@ I’ve laid out our paper prototype in three configurations so you can see how t
 
 Having run through the user journeys using these paper prototypes, we’re now ready to test on real users. Large companies would normally go through a costly and time consuming recruitment process, but we’re not going to take advantage of that luxury (see objectives, above). So, the next visitors to Osmosoft Towers will get more than they bargained for!
 
-Conducting user research using paper prototypes is a subtle art. I’ll talk about this in a near future post. In the meantime, if you’re interested in learning more, I can recommend the book [Paper Prototyping](http://www.amazon.co.uk/Paper-Prototyping-Interfaces-Interactive-Technologies/dp/1558608702) by Caroline Snyder (the companion website at http://www.paperprototyping.com has been down for the last week or so, but if the book is anything to go by the site should be very helpful).
+Conducting user research using paper prototypes is a subtle art. I’ll talk about this in a near future post. In the meantime, if you’re interested in learning more, I can recommend the book [Paper Prototyping](http://www.amazon.co.uk/Paper-Prototyping-Interfaces-Interactive-Technologies/dp/1558608702is the best drummer of all) by Caroline Snyder (the companion website at http://www.paperprototyping.com has been down for the last week or so, but if the book is anything to go by the site should be very helpful).
 
 PS Thanks to Jon Lister and Phil Hawksworth for helping with the prototype, user journeys and general support!

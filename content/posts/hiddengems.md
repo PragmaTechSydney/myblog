@@ -1,4 +1,4 @@
----
+  ---
 author: Phil Whitehouse
 title: Hidden Gems
 date: 2023-03-30
@@ -83,8 +83,18 @@ Bonus link: Steve Winwood shared [this great acoustic version of Can't Find My W
 
 ### Buckingham Nicks - Buckingham Nicks
 
+![Album cover of Buckingham Nicks](/img/BuckinghamNicksCover.jpg)
+
+### Joni Mitchell - The Hissing of Summer Lawns
+
+
 ### Billy Joel - The Stranger
 
+Whaaaat? How can anything from Billy Joel be considered a hidden gem? Look, we've all got blind spots, and Billy Joel's work was one of mine. Apart from a few singles in '83 (Uptown Girl, Tell Her About It), he just hadn't appeared on my radar. Put it down to being raised in an Essex backwater instead of downtown Manhattan, and being born slightly too late for me to have any kind of discerning musical taste when his earlier stuff was produced. Anyway, I know I've been bad and I'm trying to be a better man.
+
+So I was thrilled to find that his back catalogue more than justifies his iconic status. To my mind, his best work was produced over four albums spanning 1976-1980; Turnstiles, The Stranger, 52nd Street and Glass Houses are firm family favourites at Casablanca Towers, and The Stranger just about pips the post thanks to Songs From An Italian Restaurant (also Billy's favourite song of his).
+
+Incidentally, Billy Joel's earliest top ten hits in the UK were in 1983 (all lifted from An Innocent Man), so maybe I shouldn't feel so bad.
 
 ### Elton John - Madman Across The Water
 
