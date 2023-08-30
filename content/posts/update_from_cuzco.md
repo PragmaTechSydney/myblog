@@ -1,6 +1,6 @@
 ---
 author: Phil Whitehouse
-title: Update from Cuzco
+title: Update from Cuzco, Peru
 date: 2004-07-31
 description: RTW Trip
 ---

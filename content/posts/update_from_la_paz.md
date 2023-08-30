@@ -1,6 +1,6 @@
 ---
 author: Phil Whitehouse
-title: Update from La Paz
+title: Update from La Paz, Bolivia
 date: 2004-08-25
 description: RTW Trip
 ---

@@ -1,6 +1,6 @@
 ---
 author: Phil Whitehouse
-title: Update from Queenstown
+title: Update from Queenstown, New Zealand
 date: 2004-07-01
 description: RTW Trip
 ---

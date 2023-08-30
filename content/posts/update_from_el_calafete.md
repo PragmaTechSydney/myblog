@@ -1,6 +1,6 @@
 ---
 author: Phil Whitehouse
-title: Update from El Calafete
+title: Update from El Calafete, Argentina
 date: 2004-09-28
 description: RTW Trip
 ---

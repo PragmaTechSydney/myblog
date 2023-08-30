@@ -1,8 +1,8 @@
 ---
 author: Phil Whitehouse
-title: Update from The Cameron Highlands
+title: Update from The Cameron Highlands, Malaysia
 date: 2003-07-15
-description: Sydney
+description: Asia
 ---
 
 Sorry we haven't written for a while, we haven't had much to report as we've spent much of the last three weeks on the move. After completing our arc around [Northern Laos](/posts/update_from_luang_prabang), we took overnight trains first from Chiang Mai to Bangkok and then from Bangkok to Butterworth (Malaysia).
