@@ -17,4 +17,6 @@ Since last time we've been sucked on by leeches, had our rucksacks infested with
 
 We're nearly at the end of our South East Asia leg, and we fly from Singapore to Cairns on Monday. From there we make our way down the East Coast.
 
-PS We've bought a digital camera, so photos will accompany the next circular. Watch this space! Here's the make and model for Phil's tecchie friends: [Canon Ixus II](http://camera-wiki.org/wiki/Canon_IXUS_II) - Mmm, so silky! (2023 update: photos from Malaysia and Singapore can be seen on Flickr [here](https://www.flickr.com/photos/philliecasablanca/albums/72157603248668789/with/2050233348/))
+PS We've bought a digital camera, so photos will accompany the next circular. Watch this space! Here's the make and model for Phil's tecchie friends: [Canon Ixus II](http://camera-wiki.org/wiki/Canon_IXUS_II) - Mmm, so silky!
+
+(2023 update: photos from Malaysia and Singapore can be seen on Flickr [here](https://www.flickr.com/photos/philliecasablanca/albums/72157603248668789/with/2050233348/))

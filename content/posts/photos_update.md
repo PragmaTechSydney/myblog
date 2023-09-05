@@ -9,4 +9,4 @@ I've finally gotten around to updating our travel photos. The ones that were pre
 
 One thing I would recommend is liberal use of the F11 button. This will expand your browser to full screen, and if you do this on the photo pages you'll be able to see all the picture captions. You can tap F11 again to return the browser to normal size. I did it this way because I figured that (a) larger photos are better and (b) before long a larger screen resolution will become the norm.
 
-The new photos can be accessed from [here](https://web.archive.org/web/20040807094252fw_/http://www.philwhitehouse.com/photos.htm) (2023 update: unfortunately the Wayback machine doesn't cache my old photos).
+The new photos can be accessed from [here](https://web.archive.org/web/20040807094252fw_/http://www.philwhitehouse.com/photos.htm) (2023 update: unfortunately the Wayback machine doesn't cache my old photos. But all the travel photos have since been uploaded to [Flickr](https://www.flickr.com/photos/philliecasablanca/collections/72157603189229392/)).

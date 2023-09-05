@@ -13,17 +13,17 @@ The attractions are much further apart than they are on the East coast, but well
 
 Now, without further ado, here are the winners of our Darwin awards!
 
-The German engineering award for outstanding efficiency - Winner: Phil
+_The German engineering award for outstanding efficiency - Winner: Phil_
 
 After our first morning, we realised that there is insufficent room in a campervan for us both to get ready at the same time, so Emily devised the following routine. Step 1 - Emily gets up and goes to have a shower while Phil gets up and puts the bed away. Step 2 - Emily returns from shower, Phil goes to have his shower, Emily prepares breakfast. Step 3 - Phil returns from shower, sorts out electricity and water in campervan, they both have breakfast. Sorted.
 
 Unfortunately, this routine fell down on the first attempt. What actually happened was this: Step 1 - Emily gets up and goes to have a shower. Step 2 - Phil has a nice lie-in....
 
-The Archimedes Award for liquid measurement - Winner: Not Emily!
+_The Archimedes Award for liquid measurement - Winner: Not Emily!_
 
-The forests in the South West need lots of rain, and our third night in the campervan was a wash-out. Our campervan didn't have a toilet, a mad dash across a dark, wet, creepy campsite did not appeal, and Emily's bladder is not the strongest....! So, in increasing desperation, Emily searched for a makeshift toilet in the campervan and finally settled on a plastic Chinese takeaway box. Oh, the sweet relief! But this pleasure was sadly short lived, as Emily had horribly misjudged the capacity of the takeaway box...the results were not pretty!
+The forests in the South West need lots of rain, and our third night in the campervan was a wash-out. Our campervan didn't have a toilet, a mad dash across a dark, wet, creepy campsite did not appeal, and Emily's bladder is not the strongest....! So, in increasing desperation, Emily searched for a makeshift toilet in the campervan and finally settled on a plastic Chinese takeaway box. Oh, the sweet relief! But this pleasure was sadly short lived, as Emily had horribly misjudged the capacity of the takeaway box...the results were not pretty! Let's just say that all the washing hanging up inside the campervan to dry had to be washed again...
 
-The Worzel Gummidge Award for Bad Hair Day - Clear winner: Emily
+_The Worzel Gummidge Award for Bad Hair Day - Clear winner: Emily_
 
 We were lucky enough to go on a tour of the Kimberley Region, which has a dry season lasting for nine months, and a wet season where river heights go up by 26 METRES. Paved roads wouldn't last through this, so its 4WD-only dirt roads all the way, including some roads barely fit to bear the name. The scenery is lovely, especially the Bungle Bungles (massive stripey rock domes), but one novelty of being in such a remote location was the lack of facilities. We had ONE SHOWER IN EIGHT DAYS, and birds actually took up residence in Emily's hair. No, really! Needless to say us and our band of flies were not welcomed with open arms when we finally arrived in Darwin....
 
@@ -33,4 +33,4 @@ In other news we swam in a lake infested with 25,000 crocodiles! Not to worry th
 
 So, that's it for our Australian adventure. We fly to Sydney in about 4 hours, then onto New Zealand the next day. Our phones will no longer work, and we'll be 11 hours ahead of London. We're pretty sad leaving Australia, but we're pretty sure we'll be back again one day!
 
-_2023 Update: photos from this trip were uploaded to Flickr a couple of years later, here are snaps from [Western Australia](https://www.flickr.com/photos/philliecasablanca/sets/72157603252147144/), and a link to the collection for the whole trip can be found [here](https://www.flickr.com/photos/philliecasablanca/collections/72157603189229392/)._
+(2023 Update: photos from this trip were uploaded to Flickr a couple of years later, here are snaps from [Western Australia](https://www.flickr.com/photos/philliecasablanca/sets/72157603252147144/), and a link to the collection for the whole trip can be found [here](https://www.flickr.com/photos/philliecasablanca/collections/72157603189229392/))

@@ -7,7 +7,7 @@ description: Sydney
 
 We've completed our journey down the East coast of Australia to Brisbane ([photos here](https://www.flickr.com/photos/philliecasablanca/albums/72157603245139070)), and flew to Alice Springs yesterday.
 
-We've managed to save some dollar on the East coast by sleeping in the back of the station wagon. We can now report that sleeping in the car is less comfortable than sleeping in a tent, but slightly more comfortable than sleeping on, say, a barbed wire fence. While our friends back in London have been enjoying 38 degree celcius weather, it's winter here - so while its bright and sunny during the day, the temperature drops to near freezing at night. So it wasn't the best idea to leave the car window open on the first night in the car...
+We've managed to save some dollar on the East coast by sleeping in the back of the station wagon. We can now report that sleeping in the car is less comfortable than sleeping in a tent, but slightly more comfortable than sleeping on, say, a barbed wire fence. While our friends back in London have been enjoying 38ºc weather, it's Winter here - so while it's bright and sunny during the day, the temperature drops to near freezing at night. So it wasn't the best idea to leave the car window open on the first night in the car...
 
 One big bonus of driving down the coast though was listening to the radio. We've found this brilliant radio station called Triple J, which plays excellent music, but also listening to the local news has been insightful. It seems that somewhere in the world an Australian sportsman is winning Gold medals at something every day ("Good on yer!") and Shane Warne is the Australian equivalent of Paul Gascoigne in just about every way imaginable. He's been accused of sending lewd text messages to a South African woman, she's spilt the beans and now Warne's coach has called her a "hairy backed Sheila" - as you can imagine this has caused more problems than it's solved.
 
@@ -18,3 +18,5 @@ We spent a couple of days on a [farmstay](http://www.myella.com) and we would sa
 In other news: Phil can now see his beard without looking in a mirror (Emily is not impressed!!); and Phil's friends may remember his friend Wai-Ching, who as it happens is in Alice Springs right now - we're hoping to meet up with her later.
 
 Up next: we're heading South on Saturday, on the Wayward Bus stopping first at Uluru (formally Ayer's Rock), Kata Tjuta (formally The Olgas) and Watarrka (formerly King's Canyon). They're all now formally recognised by their Aboriginal names. We finish our trip at Adelaide, then take a bus to Sydney, arriving on 27 August. And, yes, we are worried about finding work....but not too worried!!
+
+(2023 Update: Photos from the Red Centre can be found [here](https://www.flickr.com/photos/philliecasablanca/albums/72157603245312772))

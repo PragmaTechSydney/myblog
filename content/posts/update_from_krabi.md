@@ -15,6 +15,6 @@ We're now down in Krabi, Southern Thailand. The weather and scenery are beautifu
 
 In other news: Phil is growing a beard / can't be bothered to shave. Emily stepped on a dead rat in Khao San, wearing just flip flops (Emily, not the rat). And our tans are coming on nicely (or is it just grime?).
 
-Next step: don't know yet! Smart money is on Ko Pha Ngan, in the Samui Archipelego, but we plan to read the guide books in the next few days and make some spontaneous decisions. Quite unlike us, we're sure you'll agree!
+Next step: don't know yet! Smart money is on Ko Pha Ngan, off the East Coast, but we plan to read the guide books in the next few days and make some spontaneous decisions. Quite unlike us, we're sure you'll agree!
 
 (2023 Update: Photos from Thailand can be found [here](https://www.flickr.com/photos/philliecasablanca/albums/72157603244442706))

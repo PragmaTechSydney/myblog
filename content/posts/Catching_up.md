@@ -7,7 +7,7 @@ description: Update
 
 (2023 Update: photos mentioned here aren't on Flickr, so links are to the wayback machine! This was the oldest message I've been able to retrieve, older posts are now consigned to history...)
 
-Finally, I've gotten around to uploading most of the content from the last few months. Its been a year of weddings - six, so far, and one to go - plus a number of stag weekends, and post-wedding get togethers, plus of course Big Brother and the World Cup have been on. So you'll understand that I've been busy.
+Finally, I've gotten around to uploading most of the content from the last few months. It's been a year of weddings - six, so far, and one to go - plus a number of stag weekends, and post-wedding get-togethers, plus of course Big Brother and the World Cup have been on. So you'll understand that I've been busy.
 
 But now you can check out the photos. The thought of doing so many photos put me off the job until now, so I've just uploaded some of the best. If you want to see the rest, let me know in person and I'll lend you them!
 

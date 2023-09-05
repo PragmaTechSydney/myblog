@@ -15,9 +15,9 @@ _Semi-final 2: England 24 France 7_ (Click [here](http://news.bbc.co.uk/sport1/h
 
 What a match! In case you haven't followed it, we won 24-7 with Jonny Wilkinson kicking all of our points. It was just like Twickenham; cold, swirling rain and 80% of the crowd was dressed in red and white, singing "swing low, sweet chariot" over and over again. The Aussies in the crowd were droning "boring! boring!", because we kept kicking the ball instead of running with it - to which we could only reply "winning! winning!".
 
-There has been plenty of barracking, mainly through songs. Most popular has been "you can stick your (insert four syllables here) up your arse". This adaptable song can be used for the French ("Eiffel Tower", "Arc de Triomphe"), the Aussies ("Stirling Mortlock", "Johnny Eales") or just about anyone else. Phil in particular had good fun encouraging some Aussies sitting near him to join into "God save the Queen" - ("c'mon, she's your queen too!!").
+There has been plenty of barracking, mainly through songs. Most popular has been "you can stick your (insert four syllables here) up your arse". This adaptable song can be used for the French ("Eiffel Tower", "Arc de Triomphe"), the Aussies ("Stirling Mortlock", "Johnny Eales") or just about anyone else. Phil in particular had good fun encouraging some Aussies sitting near him to join into "God save the Queen" ("c'mon, she's your queen too!!").
 
-All good natured stuff, except for one narrow minded Aussie who stopped Phil in Starbucks to report that "All English are dogs". Hmmm. The New Zealanders are obviously getting a lot of stick for "choking" again - this is the 3rd World Cup they should have won. Still, at least they can sell their ticket to the final...
+All good natured stuff, except for one narrow minded Aussie who stopped Phil in a coffee shop to report that "All English are dogs". Hmmm. The New Zealanders are obviously getting a lot of stick for "choking" again - this is the 3rd World Cup they should have won. Still, at least they can sell their ticket to the final...
 
 _Final: Australia vs England_
 
