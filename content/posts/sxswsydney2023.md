@@ -13,14 +13,14 @@ It's just "South by".
 ### Get organised
 At the time of writing, SXSW hasn't announced the full schedule of venues and speakers. Normally with a couple of months to go you can start planning for Austin - and with 1500+ sessions taking place at the Austin event (30+ in each time slot), across a few dozen venues spread across the City, you're likely to miss out on great sessions without a bit of planning. So it remains to be seen how many sessions there will be in Sydney, and where, but I'm reasonably sure some planning will be worthwhile.
 
-SXSW normally provides a session tool and mobile app to help you pick and track which events you want to attend, so watch out for that. I tend to favourite everything I'm interested in, and then the evening before each day I thin out the options, maybe allowing a maximum of two in each time slot. Then when a session finishes, my options are lined up, ready to go.
+SXSW normally provides a session tool and mobile app to help you pick and track which events you want to attend, so watch out for that. I tend to favourite everything I'm interested in, and then the evening before each day I thin out the options, maybe allowing a maximum of two in each time slot. Then when a session finishes, my options are lined up, ready to go. Plus I can also ask around the night before if anyone else has found something great I overlooked.
 
-While we wait for the announcement, I recommend checking out the headline and featured speakers shown [here](https://sxswsydney.com/sxsw-2023/sxsw-sydney-conferences/). Amy Webb's sessions are a staple for SXSW Austin, and I'm sure Charlie Brooker will be entertaining too.  
+While we wait for the schedule announcement, I recommend checking out the headline and featured speakers shown [here](https://sxswsydney.com/sxsw-2023/sxsw-sydney-conferences/). Amy Webb's sessions are a staple for SXSW Austin, and I'm sure Charlie Brooker will be entertaining too.
 
 ### Mix it up
 With so many sessions taking place, it's inevitable that everyone's SXSW will be different. This is a great opportunity...I've always found that a lot of the learnings take place in the evening, where not only do you find out what other people have learned throughout the day, there's also the potential for ideas to overlap and combine and become something completely new. Honestly, this space inbetween the sessions is one of the best things about SXSW.
 
-As a self-confessed introvert I've always found it hard talking to strangers, but if there's one place to try your best, it's SXSW. Have a few questions ready in the chamber to ask at the bar, or across the table, or even at a session when you're waiting for it to start. SXSW attracts such an exciting range of people and perspectives that you'll always pick up something new.
+As a self-confessed introvert I've always found it hard talking to strangers, but if there's one place to try your best, it's SXSW. Have a few questions ready in the chamber to ask at the bar, or across the table, or even at a session when you're waiting for it to start. Just asking about their best session so far will usually get a good response. SXSW attracts such an exciting range of people and perspectives that you'll always pick up something new.
 
 ### Don't be afraid to walk out
 If you're in a session that isn't piquing your interest, just walk out. Even if you're sitting at the front. Plenty of other people do it. Your time is too valuable to waste on poor sessions, and there might be an amazing one next door. The SXSW Austin app provides a 'Sessions near me' feature which I hope will be available in Sydney, but even if it isn't, don't let that stop you walking out - go choose a new adventure!
@@ -42,7 +42,10 @@ Humblebrag: I saw a [2 hour acoustic set by Beck](https://www.flickr.com/photos/
 When something is high on the hype cycle, you'll find loads of corresponding sessions - and most of them will be bullshit. Whether it's AI, Blockchain, Virtual Reality, or something else, it'll be hard to sort the wheat from the chaff. Don't just be pulled in by the session title, dig into the speakers to see if they're likely to be telling you something new, or instead they'll just reaffirm what you already think. And, as mentioned before, don't be afraid to walk out.
 
 ### Panel or presentation?
-In my experience, presentations are 10x better than panels. Don't get me wrong, you can get some great panels, and some _terrible_ presentations but when it comes to panels you'll want to check the presenter's credentials to make sure you're actually going to get something out of it rather than just mutual admiration, endorsement and groupthink.
+In my experience, presentations are 10x better than panels. Don't get me wrong, you can get some great panels (and some _terrible_ presentations) but when it comes to panels you'll want to check the presenters' credentials to make sure you're actually going to get something out of it rather than just mutual admiration, endorsement and groupthink.
+
+### Keep an eye out
+I'll be wandering around with (hopefully) an [Altai](/posts/altai/) t-shirt, come and say hi if you see me!
 
 ### Want to get away from the crowds?
 I recommend you head to Wynyard, jump on a B-line bus (20 minutes or so to Warringah Mall) and then head to the [many breweries of Brookvale](https://www.google.com.au/maps/search/brookvale+breweries/@-33.7654374,151.2723064,17z/data=!3m1!4b1?hl=en&entry=ttu).
