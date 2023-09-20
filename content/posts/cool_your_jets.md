@@ -7,7 +7,7 @@ description: Why We Don’t Necessarily Need To Panic Just Yet About The Arrival
 
 This post could have been titled "Why We Don’t Necessarily Need To Panic Just Yet About The Arrival Of Artificial Intelligence"...
 
-Back in 2015, the wonderful Randall Monroe wrote an awe-inspiring article titled “The AI Revolution: The Road to Superintelligence”. It’s an entertaining read and, at the time, I admit I found it very compelling. I would encourage you to give it a read, but the gist of it was that the rise in AI superintelligence is exponential, and therefore we would get whiplash as it approached and then rapidly overtook human intelligence. This handy diagram illustrates the point nicely:
+Back in 2015, the wonderful Randall Monroe wrote an awe-inspiring article titled “[The AI Revolution: The Road to Superintelligence](https://waitbutwhy.com/2015/01/artificial-intelligence-revolution-1.html)”. It’s an entertaining read and, at the time, I admit I found it very compelling. I would encourage you to give it a read, but the gist of it was that the rise in AI superintelligence is exponential, and therefore we would get whiplash as it approached and then rapidly overtook human intelligence. This handy diagram illustrates the point nicely:
 
 ![Diagram illustrating how AI intelligence will quickly overtake human intelligence!](/img/ai-1.jpg)
 
