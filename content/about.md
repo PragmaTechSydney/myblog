@@ -1,8 +1,8 @@
 ---
 title: About
 description: 'About Phil Whitehouse'
-date: '2023-09-19'
-author: Hugo Authors
+date: '2022-09-19'
+author: Phil Whitehouse
 ---
 
 Hello!
