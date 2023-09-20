@@ -1,6 +1,6 @@
 ---
 author: Phil Whitehouse
-title: Conference notes from SXSW 2023
+title: Conference notes from SX23
 date: 2023-03-18
 description: Tech conference roundup
 ---
