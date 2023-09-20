@@ -1,7 +1,7 @@
   ---
 author: Phil Whitehouse
 title: Hidden Gems
-date: 2023-09-20
+date: 2023-09-18
 description: Some choice albums
 ---
 
