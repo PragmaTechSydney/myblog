@@ -61,7 +61,7 @@ Rush is admittedly an acquired taste. On the one hand you've got Alex Lifeson's 
 
 But little did I realise that their first album would become one of my all time favourites! Coming as it did before Neil Peart even joined the group, I was thrilled to discover that their eponymous debut is filled with wall to wall bangers. Perhaps the most fun you can have on a rock album, period. As with Steely Dan, perhaps it's fair to say that their earlier stuff is slightly less technically accomplished than their later work, but they make up for this with catchy tunes.
 
-### Alice Cooper - Love It To Death (1971)
+### Alice Cooper - Love It To Death
 
 ![Album cover of Love It To Death](/img/cooper.jpg)
 
