@@ -8,7 +8,7 @@ description: Tech conference
 We've got less than a month to go before [SXSW Sydney](https://sxswsydney.com) opens their doors to an excited and curious public. I've been to SXSW Austin six times since 2009 - so I thought I'd share some tips that first timers might find helpful. This is mainly aimed at Interactive and Platinum badge holders, but there might be something useful in here for others too.
 
 ### Don't call it "South by Southwest"
-It's just "South by".
+It's just "South by" 😜
 
 ### Get organised
 At the time of writing, SXSW hasn't announced the full schedule of venues and speakers. Normally with a couple of months to go you can start planning for Austin - and with 1500+ sessions taking place at the Austin event (30+ in each time slot), across a few dozen venues spread across the City, you're likely to miss out on great sessions without a bit of planning. So it remains to be seen how many sessions there will be in Sydney, and where, but I'm reasonably sure some planning will be worthwhile.
