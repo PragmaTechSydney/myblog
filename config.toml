@@ -1,5 +1,5 @@
 title = "Phil Whitehouse"
-baseURL = 'https://frabjous-sprinkles-306dc6.netlify.app/'
+baseURL = 'https://philwhitehouse.net'
 languageCode = 'en-us'
 theme = "hugo-blog-awesome"
 
