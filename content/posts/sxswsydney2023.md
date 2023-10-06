@@ -17,7 +17,7 @@ The [web-based schedule page](https://schedule.sxswsydney.com/) and the [mobile 
 
 Note some of them will have long queues (see below), so you'll need to allow queuing time as well.
 
-I also recommend checking out the headline and featured speakers shown [here](https://sxswsydney.com/sxsw-2023/sxsw-sydney-conferences/). Amy Webb's sessions are a staple for SXSW Austin, and I'm sure Charlie Brooker will be essential viewing too. 
+I also recommend checking out the headline and featured speakers shown [here](https://sxswsydney.com/sxsw-2023/sxsw-sydney-conferences/). Amy Webb's sessions are a staple for SXSW Austin, and I'm sure Charlie Brooker will be essential viewing too.
 
 ### Mix it up
 With so many sessions taking place, it's inevitable that everyone's SXSW will be different. This is a great opportunity...I've always found that a lot of the learnings take place in the evening, where not only do you find out what other people have learned throughout the day, there's also the potential for ideas to overlap and combine and become something completely new. Honestly, this space inbetween the sessions is one of the best things about SXSW.
@@ -41,7 +41,7 @@ If you have an interactive badge, just remember that it'll get you into film and
 Humblebrag: I saw a [2 hour acoustic set by Beck](https://www.flickr.com/photos/philliecasablanca/51949178903/in/album-72177720297251799/) with just an Interactive ticket in 2022. So freakin' good!
 
 ### Bring your bullshit detector
-When something is high on the hype cycle, you'll find loads of corresponding sessions - and most of them will be bullshit. Whether it's AI, Blockchain, Virtual Reality, or something else, it'll be hard to sort the wheat from the chaff. Don't just be pulled in by the session title, dig into the speakers to see if they're likely to be telling you something new, or instead they'll just reaffirm what you already think. And, as mentioned before, don't be afraid to walk out.
+When something is high on the hype cycle, you'll find loads of corresponding sessions - and most of them will be bullshit. Whether it's AI, Web3, Blockchain, Virtual Reality, or something else, it'll be hard to sort the wheat from the chaff. Don't just be pulled in by the session title, dig into the speakers to see if they're likely to be telling you something new, or instead they'll just reaffirm what you already think. And, as mentioned before, don't be afraid to walk out.
 
 ### Panel or presentation?
 In my experience, presentations are 10x better than panels. Don't get me wrong, you can get some great panels (and some _terrible_ presentations) but when it comes to panels you'll want to check the presenters' credentials to make sure you're actually going to get something out of it rather than just mutual admiration, endorsement and groupthink.
