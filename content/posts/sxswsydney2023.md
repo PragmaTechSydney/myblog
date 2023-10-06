@@ -1,21 +1,23 @@
 ---
 author: Phil Whitehouse
 title: Get ready for SXSW Sydney
-date: 2023-09-20
+date: 2023-10-05
 description: Tech conference
 ---
 
 We've got less than a month to go before [SXSW Sydney](https://sxswsydney.com) opens their doors to an excited and curious public. I've been to SXSW Austin six times since 2009 - so I thought I'd share some tips that first timers might find helpful. This is mainly aimed at Interactive and Platinum badge holders, but there might be something useful in here for others too.
 
 ### Don't call it "South by Southwest"
-It's just "South by" 😜
+It's just "South by" 🤠
 
 ### Get organised
-At the time of writing, SXSW hasn't announced the full schedule of venues and speakers. Normally with a couple of months to go you can start planning for Austin - and with 1500+ sessions taking place at the Austin event (30+ in each time slot), across a few dozen venues spread across the City, you're likely to miss out on great sessions without a bit of planning. So it remains to be seen how many sessions there will be in Sydney, and where, but I'm reasonably sure some planning will be worthwhile.
+SXSW has finally announced the [full schedule of venues and speakers](https://schedule.sxswsydney.com/), and with over a dozen sessions in some time slots, taking place across different venues, you're likely to miss out on great sessions without a bit of planning.
 
-SXSW normally provides a session tool and mobile app to help you pick and track which events you want to attend, so watch out for that. I tend to favourite everything I'm interested in regardless of time slot, and then the evening before each day I thin out the options, maybe allowing a maximum of two in each time slot. Then when a session finishes, my options are lined up, ready to go. Plus I can also ask around the night before if anyone else has found something great I overlooked.
+The [web-based schedule page](https://schedule.sxswsydney.com/) and the [mobile app](https://live.eventbase.com/app-download?event=sxswsydney2023) lets you mark favourites in advance. I tend to use the web app to favourite everything I'm interested in regardless of time slot, and at the end of each day I look at the next days options (some of which might be moved or cancelled at the last minute), thinning out the options allowing maybe a maximum of two in each time slot. Plus I can also ask around the night before if anyone else has found something great I overlooked.
 
-While we wait for the schedule announcement, I recommend checking out the headline and featured speakers shown [here](https://sxswsydney.com/sxsw-2023/sxsw-sydney-conferences/). Amy Webb's sessions are a staple for SXSW Austin, and I'm sure Charlie Brooker will be entertaining too.
+Note some of them will have long queues (see below), so you'll need to allow queuing time as well.
+
+I also recommend checking out the headline and featured speakers shown [here](https://sxswsydney.com/sxsw-2023/sxsw-sydney-conferences/). Amy Webb's sessions are a staple for SXSW Austin, and I'm sure Charlie Brooker will be essential viewing too. 
 
 ### Mix it up
 With so many sessions taking place, it's inevitable that everyone's SXSW will be different. This is a great opportunity...I've always found that a lot of the learnings take place in the evening, where not only do you find out what other people have learned throughout the day, there's also the potential for ideas to overlap and combine and become something completely new. Honestly, this space inbetween the sessions is one of the best things about SXSW.
