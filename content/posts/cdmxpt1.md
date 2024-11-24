@@ -12,7 +12,7 @@ Photos are on [Flickr](https://flickr.com/photos/philliecasablanca/albums/721777
 
 ## Gorgeous neighbourhoods
 
-I’m lucky to be living in a lovely neighbourhood called [Roma](https://www.google.com/maps/place/Roma+Sur,+06760+Mexico+City,+CDMX/@19.4058667,-99.1677826,16z/data=!3m1!4b1!4m6!3m5!1s0x85d1ff15ce5d27cb:0xe3d46f0905e420e3!8m2!3d19.405299!4d-99.1649891!16s%2Fg%2F1tcvc748?entry=ttu&g_ep=EgoyMDI0MTExOS4yIKXMDSoASAFQAw%3D%3D). It was a working class neighbourhood when the houses were built around 80 years ago, then went through decline before an influx of artists moved in and gentrification followed. All the buildings are painted in bright colours, many fading gracefully, with ornate, crumbling frontages and big heavy doors. Kids and dogs and families everywhere. Graffiti is more mural-y than tag-y.
+I’m lucky to be living in a lovely neighbourhood called [Roma](https://www.google.com/maps/place/Roma+Sur,+06760+Mexico+City,+CDMX/@19.4058667,-99.1677826,16z/data=!3m1!4b1!4m6!3m5!1s0x85d1ff15ce5d27cb:0xe3d46f0905e420e3!8m2!3d19.405299!4d-99.1649891!16s%2Fg%2F1tcvc748?entry=ttu&g_ep=EgoyMDI0MTExOS4yIKXMDSoASAFQAw%3D%3D). It was a working class neighbourhood when the houses were built around 80 years ago, then went through decline before an influx of artists moved in and gentrification followed. All the buildings are painted in bright colours, many fading gracefully, with ornate, crumbling frontages and big heavy doors. Kids and dogs and families everywhere. Graffiti is more mural-y than tag-y, although there's certainly plenty of the latter along with stickers and posters and other urban ephemera.
 
 ## Community vibes
 
