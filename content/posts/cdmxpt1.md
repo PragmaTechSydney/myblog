@@ -20,7 +20,7 @@ There’s a Westfield-style mall a 15 minute walk away, but that hasn’t stoppe
 
 ## The food
 
-Yep, I was warned about the food...it is incredible, especially from the little stalls and hole-in-the-wall Taquerias. I’ve found a local place that does 2-for-1 Taco de Pastor (grilled meats) with a range of amazing homemade hot sauces - 4 of those tacos plus a Pepsi and tip comes to MX$60 - that’s A$4.50! The sauces are perfection; tingly, hot and made me very happy. Also cheap and plentiful are the breakfast pastries, aka Pan de Leche, which are so fluffy I’m surprised they don’t float away. Usually about MX$35/A$3 for the premium ones, like the Danish Fresa (Strawberry) at one of the aforementioned cafes (I can actually see them from my room, very dangerous).
+Yep, I was warned about the food...it is incredible, especially from the little stalls and hole-in-the-wall Taquerias. I’ve found a local place that does 2-for-1 Taco de Pastor (grilled meats) with a range of amazing homemade hot sauces - 4 of those tacos plus a Pepsi and tip comes to MX$60 - that’s A$4.50! The sauces are perfection; tingly, hot and made me very happy. Also cheap and plentiful are the breakfast pastries, aka Pan de Leche, which are so fluffy I’m surprised they don’t float away. Usually about MX$35/A$3 for the premium ones, like the Danish Fresa (Strawberry) at one of the aforementioned cafes (I can actually see these pastries from my room window, very dangerous).
 
 ## Safety
 
