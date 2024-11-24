@@ -36,8 +36,8 @@ I love running, and was hoping I could keep up my regime here. The good news is 
 
 ## The prices
 
-Street food is cheap. Local (“Nacional”) beer is cheap. Bread is cheap. My accomodation is pretty basic, that’s about A$50 a night, but you can easily pay much more. Most everything else is about 80% of the price you’d pay in Sydney or London. So that gives you an idea.
+Street food is cheap. Local (“Nacional”) beer is cheap. Fresh bread and pastries, cheap. My accomodation is pretty basic, that’s about A$50 a night, but you can easily pay much more. Most everything else is about 80-90% of the price you’d pay in Sydney or London. So that gives you an idea.
 
 ## What’s next?
 
-Our current plan is (for myself and Emily) to move here at some point next year - that’s still on the cards, work is going well. In the 2½ weeks remaining, I’ve planned a nice trip down to Oaxaca (2 hours on the plane) to experience a different part of Mexico. I will be drinking Mezcal. ¡Vamos!
+Our current plan is (for myself and Emily) to move here at some point next year - that’s still on the cards, work is going well. In the 2½ weeks remaining in this trip, I’ve planned a nice weekend down in Oaxaca (2 hours on the plane) to experience a different part of Mexico. I will be drinking Mezcal. ¡Vamos!
