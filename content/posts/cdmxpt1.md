@@ -24,7 +24,7 @@ Yep, I was warned about the food...it is incredible, especially from the little 
 
 ## Safety
 
-I’m under no illusion that I’m in a relatively well-off part of town, although there are other neighbourhoods which are far more affluent. I've walked dozens of kms, many of them at night, and I’ve always felt safe. It helps that I’m male and taking sensible precautions - no obvious signs of wealth, avoid dodgy areas, etc. - but still I would do that in any large city. Just one man’s experience, but so far so good.
+I’m under no illusion that I’m in a relatively upmarket part of town, but I've walked dozens of kms since arriving, many of them at night, and I’ve always felt safe. It helps that I’m male and taking sensible precautions - no obvious signs of wealth, usual scruffy self, avoid dodgy areas, etc. - but still I would do that in any large city. Just one man’s experience, but so far so good.
 
 ## History
 
