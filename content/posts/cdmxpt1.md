@@ -32,7 +32,7 @@ I’ve always loved how in London you get a sense of historical continuity - so 
 
 ## Exercise
 
-I love running, and was hoping I could keep up my regime here. The good news is I can - it’s about 3km to Bosque de Chapeltepec, which is kind of like Mexico City’s Central Park. They also shut the main avenue (Reforma) to traffic on Sundays, so I’ve been running there too. The only downsides are the altitude (2200m, so it’s hard work) and the condition of the pavements (tree roots and subsidence have had their way, it’s like parkour in places!). The car exhausts can be a bit yuk too at times. But it's defo a net positive.  
+I love running, and was hoping I could keep up my regime here. The good news is I can - it’s about 3km to Bosque de Chapeltepec, which is kind of like Mexico City’s Central Park. They also shut the main avenue (Reforma) to traffic on Sundays, so I’ve been running there too. The only downsides are the altitude - 2200m, so it’s hard work - and the condition of the pavements. Tree roots have had their way, and Mexico City was built on what used to be a lake, so everything's sinking - it’s like parkour in places! The car exhausts can be a bit yuk too at times. But it's defo a net positive.  
 
 ## The prices
 
