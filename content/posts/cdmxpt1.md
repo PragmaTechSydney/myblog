@@ -4,7 +4,7 @@ title: 2½ weeks in CDMX
 date: 2024-11-23
 description: Social
 ---
-I’m half way through my Mexican adventure. Before I left, I had two very different reactions from folks when I said I was visiting; “It’s dangerous, isn’t it?” from people who hadn’t been, and “You’re gonna love it!” from people who had.
+I’m half way through my Mexican adventure. Before I left, I had two very different reactions from folks when I said I was staying in Mexico City; “It’s dangerous, isn’t it?” from people who hadn’t been, and “You’re gonna love it!” from people who had.
 
 The you’re-gonna-love-it people were right - it’s a cracking city, with so much to see and do, but also very warm vibes that make you want to settle in and get to know it better.
 
