@@ -10,7 +10,7 @@ I'm back in Mexico City (La Ciudad de México, aka CDMX), this time with (Borat 
 
 ## Lucky lucky lucky
 
-We're incredibly lucky to be doing the digital nomad thing! Emily's amazing charity ([So Then Can](https://www.sotheycan.org)) is making in-roads into the States and Europe, so CDMX is a much better base of operations than Sydney, and certainly cheaper than being Stateside. She's already got runs on the board, and has done a two night trip to Phoenix already. Meanwhile, [Altai](http://altaicasting.com) is continuing our push into LATAM / North America - some exciting things happening there. Meanwhile, the kids are at home, starting university and looking after the dogs and apartment, so the stars have aligned across the board.
+We're incredibly lucky to be doing the digital nomad thing! Emily's amazing charity ([So Then Can](https://www.sotheycan.org)) is making in-roads into the States and Europe, so CDMX is a much better base of operations than Sydney, and certainly cheaper than being Stateside. She's already got runs on the board, and has done a two night trip to Phoenix already. For my job, [Altai](http://altaicasting.com) is continuing our push into LATAM / North America - some exciting things happening there. Meanwhile, the kids are at home, starting university and looking after the dogs and apartment, so the stars have aligned across the board.
 
 ## Roma Norte
 
