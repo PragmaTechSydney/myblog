@@ -8,9 +8,7 @@ description: Social
 
 I'm back in Mexico City (La Ciudad de México, aka CDMX), this time with (Borat voice) my wife and this time for a lot longer. We'll be in Mexico and the US for seven months in total, starting with three months in CDMX, and then a month in Mérida, using that as a base to explore the [Yucatán Peninsula](https://www.google.com/maps/place/Yucatán+Peninsula/@19.5636533,-91.7724574,7z/data=!3m1!4b1!4m6!3m5!1s0x8f59e3c0b627dc33:0x30ae11a8a469643!8m2!3d18.806656!4d-89.3985283!16zL20vMDRsenM4?entry=ttu&g_ep=EgoyMDI1MDUwNy4wIKXMDSoASAFQAw%3D%3D) in our free time. More on that later.
 
-## Lucky lucky lucky
-
-We're incredibly lucky to be doing the digital nomad thing! Emily's amazing charity ([So Then Can](https://www.sotheycan.org)) is making in-roads into the States and Europe, so CDMX is a much better base of operations than Sydney, and certainly cheaper than being Stateside. She's already got runs on the board, and has done a two night trip to Phoenix already. For my job, [Altai](http://altaicasting.com) is continuing our push into LATAM / North America - some exciting things happening there. Meanwhile, the kids are at home, starting university and looking after the dogs and apartment, so the stars have aligned across the board.
+We feel very fortunate to be doing the digital nomad thing! Emily's charity ([So Then Can](https://www.sotheycan.org)) is making in-roads into the States and Europe, so CDMX is a better base of operations than Sydney, and certainly cheaper than being Stateside. For my job, [Altai](http://altaicasting.com) is continuing our push into LATAM / North America - so the same applies for me. Meanwhile, the kids are at home, starting university and looking after the dogs and apartment, so the stars have aligned across the board.
 
 ## Roma Norte
 
