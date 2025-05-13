@@ -30,7 +30,7 @@ At the weekend, that main boulevard (Reforma) is closed to traffic, and the publ
 
 Although our street is quiet, we’re actually quite close to dozens of lovely cafes, restaurants and bars. There are also food stalls that spring up on several corners within walking distance - mostly things like tacos, quesadillas, and other traditional Mexican fare. Delicious and cheap.
 
-We’ve really enjoyed trying different food and drink. We've been trying several different varieties of Mezcal - a bit like Tequila - which is served in a shot glass for sipping (not shooting!) alongside a beer. We've found a great bar round the corner that does a beer and mezcal promoción for $130 (that's pesos, not dollars!), equivalent to about A$10, very good value. We’ve also made friends with the owners of a local Cantina - say hello to Jorge, here’s a [picture](https://www.flickr.com/photos/philliecasablanca/54478200274/in/album-72177720325515091)! I now own the t-shirt in that photo...
+We’ve really enjoyed trying different food and drink, including experimenting with varieties of Mezcal - a bit like Tequila - which is served in a shot glass for sipping (not shooting!) alongside a beer. We've found a great bar round the corner that does a beer and mezcal promoción for $130 (that's pesos, not dollars!), equivalent to about A$10, very good value. We’ve also made friends with the owners of a local Cantina - say hello to Jorge, here’s a [picture](https://www.flickr.com/photos/philliecasablanca/54478200274/in/album-72177720325515091)! I now own the t-shirt in that photo...
 
 Talking of Mezcal, we've bought some for home consumption, along with oranges and worm salt. You read that right! It contains a blend of sea salt, toasted and ground agave worms, and chilli peppers. Yum.
 
