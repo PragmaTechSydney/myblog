@@ -36,7 +36,7 @@ Talking of Mezcal, we've bought some for home consumption, along with oranges an
 
 ## Working 9-5, that's no way to make a living
 
-My working day is quite challenging - first thing in the morning I have an overlap with our software engineers in Sri Lanka, where it’s mid-evening, so I help them if they need it. Most of my meetings start at around 5pm, which is when Australia starts work. And my last meeting of the day includes the same colleagues in Sri Lanka, when they’re starting their day. So end to end that’s about 14 hours - but don’t fret, I don’t work non-stop during that time. I do exercise, like I said, and also take long lunches and watch a bit of telly, go for walks, do shopping, etc. Although we start work on Sunday afternoon (Monday morning in Sydney), we also finish early on a Friday. So it’s a weird balance, but it works. And the weekends are all our own.
+My working day is quite challenging - first thing in the morning I have an overlap with our software engineers in Sri Lanka, where it’s early-evening, so I help them if they need it. Most of my meetings start at around 5pm, which is when Australia starts work. And my last meeting of the day includes the same colleagues in Sri Lanka, when they’re starting their day. So end to end that’s about 14 hours - but don’t fret, I don’t work non-stop during that time. I do exercise, like I said, and also take long lunches and watch a bit of telly, go for walks, do shopping, etc. Although we start work on Sunday afternoon (Monday morning in Sydney), we also finish early on a Friday. So it’s a weird balance, but it works. And the weekends are all our own.
 
 ## Pueblos Mágicos
 
