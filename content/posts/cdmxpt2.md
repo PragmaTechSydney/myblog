@@ -32,7 +32,7 @@ Although our street is quiet, we’re actually quite close to dozens of lovely c
 
 We’ve really enjoyed trying different food and drink, including experimenting with varieties of Mezcal - a bit like Tequila - which is served in a shot glass for sipping (not shooting!) alongside a beer. We've found a great bar round the corner that does a beer and mezcal promoción for $130 (that's pesos, not dollars!), equivalent to about A$10, very good value. We’ve also made friends with the owners of a local Cantina - say hello to Jorge, here’s a [picture](https://www.flickr.com/photos/philliecasablanca/54478200274/in/album-72177720325515091)! I now own the t-shirt in that photo...
 
-Talking of Mezcal, we've bought some for home consumption, along with oranges and worm salt. You read that right! It contains a blend of sea salt, toasted and ground agave worms, and chilli peppers. Yum.
+Talking of Mezcal, we've bought some for home consumption, along with oranges and worm salt. You read that right - it contains a blend of sea salt, toasted and ground agave worms, and chilli peppers. Yum.
 
 ## Working 9-5, that's no way to make a living
 
