@@ -19,6 +19,6 @@ Update 16 April 2026:
 
 Been using this setup for three months, had a few niggles:
 
-- Discovered that some CDs, maybe 1 in 20, play with a sort of robot static obscuring the music. I'm like 95% sure it's down to the way the CD was manufacturered that makes it only partially compatible with the Superdrive. If you rip the tracks, the robot static is retained.
+- Discovered that some CDs, maybe 1 in 20, play with a sort of heavy robot static obscuring the music. I'm like 95% sure it's down to the way the CD was manufactured that makes it only partially compatible with the Superdrive. If you rip the tracks, the robot static is retained.
 - A couple of weeks ago all CDs would stop playing randomly, usually during the first track. A CD cleaner (with those little brushes on them) cleared that up.
 - I've noticed that the Superdrive is quite sensitive to movement, so putting elbows on the desk would make the device behave as though the CD had been ejected and inserted real quick i.e. not just a skipped track. I've put mine on the DVD case that came with the CD cleaner, that seems to have resolved the issue.
