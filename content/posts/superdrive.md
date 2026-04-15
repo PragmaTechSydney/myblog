@@ -11,7 +11,7 @@ BUT then it occurred to me there was a third option! I could get one of those ol
 
 So, I can report in SEO friendly terms that you can connect a Superdrive to a MacBook Air M1 so long as you have a USB-A to USB-C adaptor. It works just fine. And if you also have a Mac Studio display, you can plug the Superdrive into the back of that to the same effect. The CD inserted into the drive will appear on the desktop, and the system settings menu expands so you can choose defaults like opening the Apple Music app when a CD is inserted, as well as enabling the eject icon to appear in the top menu bar for easy ejection.
 
-Total cost: $20 for the Superdrive, $9 for the USB adaptor, great sound quality due to the Studio Display speakers = Happy Phil.
+Total cost: $20 for the Superdrive, $9 for the USB adaptor, decent sound quality due to the Studio Display speakers = Happy Phil.
 
 Update 16 April 2026:
 
